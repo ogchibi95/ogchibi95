@@ -1,1 +1,7 @@
-### Code created and published by Finnish guy
+# JAN KRISTIAN VALGIJAINEN (Chibi) [@ogchibi95]
+
+---
+
+### Welcome to my Github-page!
+
+
